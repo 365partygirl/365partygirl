@@ -3,6 +3,7 @@
 ![IMG_9003](https://github.com/user-attachments/assets/77897504-2383-42c8-9b36-e07fac7e632a)
 
 ill make a actual grpahic later lol
-my roblox avatar 😈😈😈😈😈😈😈
+
+my roblox avatar for now heh😈😈😈😈😈😈😈
 
 ![Untitled347_20241006233251](https://github.com/user-attachments/assets/14bb4fc1-7285-48c4-881b-d75188adb647)
